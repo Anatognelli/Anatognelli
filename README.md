@@ -17,3 +17,6 @@ Para entrar em contato comigo: (Email) analuizatognelli11@gmail.com
       
 ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/42c02453-cc57-438c-88b7-62b50a96d23e)
 ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/5788bf8a-d54c-4324-a017-f9e351211e07)
+
+<i class="devicon-adonisjs-original colori"></i>
+          
