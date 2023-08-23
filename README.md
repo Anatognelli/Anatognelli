@@ -14,16 +14,15 @@ Para entrar em contato comigo: (Email) analuizatognelli11@gmail.com
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Anatognelli)](https://github.com/Anatognelli/github-readme-stats)
 
 ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/73b77426-b899-462e-a6a6-ba16a46a7516)
+    ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/b6737ec0-c1c6-40b6-babe-0922d2de3d5d)
 
-                          ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/b6737ec0-c1c6-40b6-babe-0922d2de3d5d)
+ ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/cd0a91cc-0df5-490d-918a-480ca64ace6b)
 
-      ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/cd0a91cc-0df5-490d-918a-480ca64ace6b)
+   ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/4b88421f-319f-42b6-9a9a-4c7e4b2b2a09)
 
-             ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/4b88421f-319f-42b6-9a9a-4c7e4b2b2a09)
+ ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/c3bd4b46-1aaf-4250-ae73-953a8619dce9)
 
-      ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/c3bd4b46-1aaf-4250-ae73-953a8619dce9)
-
-              ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/965b2466-0e87-424e-8c56-c7a56f78d714)
+ ![image](https://github.com/Anatognelli/Anatognelli/assets/143017402/965b2466-0e87-424e-8c56-c7a56f78d714)
 
 
 
